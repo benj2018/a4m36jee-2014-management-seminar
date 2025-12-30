@@ -1,4 +1,4 @@
 
-adjust content
-5tPbLqreSwow2fQDGYTbkOm2eKWeI3
-2017-02-22T08:42:22Z
+minor cleanup
+BXJCnDQbp3WGMNEBmrDBuiAxIyIgMH
+2017-09-20T04:18:20Z
